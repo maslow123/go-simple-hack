@@ -1,0 +1,1 @@
+file:///D:/me/exercise/go-simple-hack/KODENESIA%20(1).pdf hal 20
